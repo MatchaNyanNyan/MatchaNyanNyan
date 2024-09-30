@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @MatchaNyanNyan
-- Doesn't know how codes works. Trying to learn.
+- Doesn't know how codes work. Trying to learn.
